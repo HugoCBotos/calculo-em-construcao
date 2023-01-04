@@ -1,0 +1,1 @@
+Copyright © 2023 de Hugo Cattarucci Botós. Autorizo reprodução e distribuição do texto para fins não-lucrativos desde que a autoria seja citada. Se encontrar erros, agradeço se me notificar via e-mail: hugocbotos at gmail.com.
